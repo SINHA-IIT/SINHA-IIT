@@ -14,7 +14,7 @@ Photographery 📸painting🎨
 Moscow 
 Manali
 ### Website
-***[MySelf](SINHA-IIT/sinha-iit.github.io)***
+***[MySelf](http://sinhaabhinashkumar.me/)***
 ## 🤝 Connect with me:
-https://www.facebook.com/abhisinha88
-https://twitter.com
+[Facebook](https://www.facebook.com/abhisinha88)
+[Twitter](https://twitter.com)
